@@ -4,7 +4,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=rupkatha6005&label=Profile%20views&color=0e75b6&style=flat" alt="rupkatha6005" /> </p>
 
-- 📫 How to reach me **rupkatha6005@gmail.com**
+- 📫 How to reach me **ayesha.bintee.rob@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
